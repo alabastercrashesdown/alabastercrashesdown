@@ -1,4 +1,4 @@
-sign my [atabook](https://alabaster.atabook.org/), check out my [strawpage](https://somewhereelse.straw.page/), i have [discord](https://discord.com/users/1154189614425325699)
+sign my [atabook](https://alabaster.atabook.org/), check out my [strawpage](https://somewhereelse.straw.page/), i have [discord](https://discord.com/users/1154189614425325699), [artfight](https://artfight.net/~alabastercrashesdown)
 ![ezgif-31046f83966a0135](https://github.com/user-attachments/assets/0a64543c-d8c6-48dc-b62e-240c0cca4cda)
 
 - C + H okay, feel free to stop by for a chat!
